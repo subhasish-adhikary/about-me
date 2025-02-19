@@ -8,6 +8,7 @@ Optimize e-commerce performance through automation & data-driven marketing
 Implement CRM strategies to enhance customer journeys
 Leverage growth hacking & brand marketing for sustainable scale
 💡 Impact Highlights:
+
 ✅ Boosted traffic & lead conversion by 400% at Vella CCTV
 ✅ Achieved 50% YoY revenue growth for Choco Fantasy Group
 ✅ Scaled social reach to 120,000+ users for Miles to Go
